@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Haise240
-- 👀 I'm anime watcher dota enjoyer
+- 👀 I'm anime watcher python enjoyer
 - 🌱 I’m currently learning python and cs stuff
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me discord: Haise#9731  tg: haise240
